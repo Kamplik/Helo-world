@@ -1,2 +1,2 @@
 # Helo-world
-Boy of czech
+Boy of Czech Rpublic
